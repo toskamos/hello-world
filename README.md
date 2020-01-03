@@ -9,4 +9,8 @@ Due to my studies, i was suggested to learn using this platform for improving my
 
 I hope ill get creative enough or open minded to create and develope an open source application\software to help society in some way.
 
-Dont know coding yet but learning and aquring them fast at the moment.
+Dont know coding professionally yet but learning and aquring them fast at the moment.
+ 
+ 
+ 
+BLA BLA BLA
